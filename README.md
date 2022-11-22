@@ -9,7 +9,7 @@ Ima kaeri kon
 
 
 
-Though we are apart,
+-Though we are apart,
 If on Mount Inaba’s peak
 I should hear the sound
 Of the pine trees growing there,
